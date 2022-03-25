@@ -1,2 +1,2 @@
 # Brasil
-Não recomendado para Lesa Pátrias
+Lesa Pátrias não são bem vindos
